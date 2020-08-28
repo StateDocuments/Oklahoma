@@ -1,5 +1,6 @@
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oklahoma/blob/master/camera1_l.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oklahoma/blob/master/queenanne.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oklahoma/blob/master/roofcam2ne500x281.jpg)
+![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oklahoma/blob/master/scheduling-scheduleExchange-wide.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oklahoma/blob/master/seatac.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Oklahoma/blob/master/waterfront.jpg)
